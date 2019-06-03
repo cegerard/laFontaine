@@ -26,3 +26,23 @@ Avaient lassé les Grecs, qui, par mille moyens,
 Par mille assauts, par cent batailles,
 N’avaient pu mettre à bout cette fière Cité :
 Quand un cheval de bois par Minerve inventé
+D’un rare et nouvel artifice,
+Dans ses énormes flancs reçut le sage Ulysse,
+Le vaillant Diomède, Ajax l’impétueux,
+Que ce Colosse monstrueux
+Avec leurs escadrons devait porter dans Troie,
+Livrant à leur fureur ses Dieux mêmes en proie.
+Stratagème inouï, qui des fabricateurs
+Paya la constance et la peine.
+C’est assez, me dira quelqu’un de nos Auteurs ;
+La période est longue, il faut reprendre haleine.
+Et puis votre Cheval de bois,
+Vos Héros avec leurs Phalanges,
+Ce sont des contes plus étranges
+Qu’un Renard qui cajole un Corbeau sur sa voix.
+De plus il vous sied mal d’écrire en si haut style.
+Eh bien, baissons d’un ton. La jalouse Amarille
+Songeait à son Alcippe, et croyait de ses soins
+N’avoir que ses Moutons et son Chien pour témoins.
+Tircis qui l’aperçut, se glisse entre des Saules,
+Il entend la Bergère adressant ces paroles
