@@ -46,3 +46,15 @@ Songeait à son Alcippe, et croyait de ses soins
 N’avoir que ses Moutons et son Chien pour témoins.
 Tircis qui l’aperçut, se glisse entre des Saules,
 Il entend la Bergère adressant ces paroles
+Au doux Zéphyre, et le priant
+De les porter à son Amant.
+Je vous arrête à cette rime,
+Dira mon Censeur à l’instant.
+Je ne la tiens pas légitime,
+Ni d’une assez grande vertu.
+Remettez, pour le mieux, ces deux vers à la fonte.
+Maudit Censeur, te tairas-tu ?
+Ne saurais-je achever mon conte ?
+C’est un dessein très dangereux
+Que d’entreprendre de te plaire.
+Les délicats sont malheureux 
