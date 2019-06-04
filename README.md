@@ -13,6 +13,8 @@ Dépôt de base pour le TP noté de l'initiation à Git
 - Constatez-vous des problèmes ?
 - Que préconisez-vous pour améliorer l'historique ?
 ---
-5. Ajouter une fable au dépôt
-Ajouter une nouvelle fable dans votre dépôt et proposer de l'intégrer dans le dépôt original (pull request)
+5. Faire des modifications:
+- Ajouter une nouvelle fable dans votre fork
+- Corriger les erreurs que vous auriez rencontré
+- Proposer d'intégrer vous modification dans le dépôt original (pull request)
 ---
