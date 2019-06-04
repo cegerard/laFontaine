@@ -1,6 +1,6 @@
 # Conseil tenu par les rats
 
-*Fable n° 1*
+*Fable n° 2*
 *Livre II*
 
 Un Chat nommé Rodilardus,
