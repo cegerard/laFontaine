@@ -29,3 +29,8 @@ Si je suivais mon goût, je saurais où buter ;
 Mais j’ai les miens, la Cour, le peuple à contenter.
 Malherbe là-dessus. Contenter tout le monde !
 Écoutez ce récit avant que je réponde.
+
+Quant à vous, suivez Mars, ou l’Amour, ou le Prince ;
+Allez, venez, courez, demeurez en Province ;
+Prenez femme, Abbaye, Emploi, Gouvernement ;
+Les gens en parleront, n’en doutez nullement.
